@@ -1,7 +1,12 @@
 En las últimas horas, la búsqueda del video de La Liendra y su novia se ha vuelto tendencia en plataformas como Telegram y Twitter (ahora X). Este video, que muestra a la pareja en un momento íntimo, fue filtrado en Internet sin su consentimiento, generando un amplio debate sobre la privacidad y la ética en la difusión de contenido personal.
 
-En febrero de 2022, los influenciadores colombianos Mauricio Gómez, conocido como La Liendra, y su pareja, Dani Duke, enfrentaron la difusión no autorizada de un video privado.
+📺📱👉◄◄🔴 https://tinyurl.com/5n6bjbnr
 
+📺📱👉◄◄🔴 https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴 https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴 https://tinyurl.com/5n6bjbnr
 
 ¿Existe el video filtrado de La Liendra y Dani Duke?
 El material, que mostraba a la pareja en una situación comprometedora, se viralizó rápidamente, lo que obligó a ambos a pronunciarse públicamente sobre el incidente.
